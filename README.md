@@ -1,1 +1,1 @@
-Men o`z akkauntimni yo`qotib qo`ygan edim va yana qaytarib oldim.
+Men oz akkauntimni yoqotib qo`ygan edim va yana qaytarib oldim.
